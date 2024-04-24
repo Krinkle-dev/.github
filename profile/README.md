@@ -1,1 +1,1 @@
-Build good shit, be a good person.
+Build cool shit, be a good person.
